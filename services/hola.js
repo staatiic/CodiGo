@@ -1,1 +1,0 @@
-"chsnce no usamos esto qn sabe"
